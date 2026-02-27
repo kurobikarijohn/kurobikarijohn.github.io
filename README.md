@@ -1,0 +1,1 @@
+# kurobikarijohn.github.io
